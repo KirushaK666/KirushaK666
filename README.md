@@ -3,4 +3,4 @@
 > 
 > *— Дж. Стэтхэм*
 
-Мой ВК "[крутой пацан]"(http://vk.ru/kuuuzyyyaaa)
+Мой ВК [крутой пацан](http://vk.ru/kuuuzyyyaaa)
